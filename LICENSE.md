@@ -1,4 +1,4 @@
-#  
+#  Inteligente brainrot evolution script é o melhor brainrot evolution script com cura automática e acesso a servidor privado. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
